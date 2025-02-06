@@ -3,4 +3,5 @@
 hello!
 how you doin?
 
-Ethan: Why did the cow go to Hollywood? To be in the moo-vies
+Why did the cow go to Hollywood? To be in the moo-vies
+Did you hear about the cat that ate a lemon? Now it's a sour puss.
